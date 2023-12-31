@@ -18,3 +18,9 @@ Projects:
 - Decentralized Public Authorities
 
 ...and some other dope sh*t
+
+we codiene all day
+
+f*ck streeters
+
+Terra RIP
